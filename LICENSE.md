@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Designer for macOS extension with vip Extension for Affinity Designer for macOS - 3D rendering and smart objects. Featuring 3D rendering and smart
 
 
 
